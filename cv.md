@@ -4,7 +4,7 @@
 
 ### Contacts
 * Discord: GiperSi#3586
-* vk: [Vkontakte]()
+* vk: [Vkontakte](https://vk.com/id152298546)
 * email: Feniks13313@gmail.com
 
 ## About myself
