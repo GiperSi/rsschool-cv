@@ -1,4 +1,4 @@
-![]()
+![](https://image.freepik.com/free-vector/vector-avatar-smiling-man-facial-expression_102172-203.jpg)
 
 # Dzmitry Drabysheuski
 
